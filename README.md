@@ -2,4 +2,4 @@
 MANASA RAJANENI 
 DIVYA KUCHI
 NEERUKONDA JITENDRA
-VIDEO LINK: https://drive.google.com/file/d/1f_GeqZL-YJ71-f5TJwyIH6LiKQ-l3Y73/view?usp=sharing
+VIDEO LINK: https://drive.google.com/file/d/1WH7VGGIHK0vQyCSqU33mLsTwUkM-mx4D/view?usp=sharing
